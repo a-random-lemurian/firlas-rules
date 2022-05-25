@@ -7,7 +7,7 @@
 1. First Last is not allowed to reveal that "he is a ~~genetic experiment~~ perfectly normal human being".
 1. First Last is not allowed to introduce the Hai to the concept of furries.
 1. First Last is not allowed to track down Diana Howl in order to give her 50 Bulk Freighters worth of food.
-1. First Last is not allowed to capitalise a woman's pronouns unless she is a goddess.
+1. First Last is not allowed to capitalize a woman's pronouns unless she is a goddess.
 1. First Last is not allowed to become the leader of the Coalition.
 1. First Last is not allowed to condemn people to death in Sagittarius A\*.
 1. First Last is not allowed to condemn people to death in any black hole.
@@ -177,7 +177,7 @@
 1. First Last is not allowed to say "get that sussy baka!" while referring to anyone on board one of his ships.
 1. First Last is not allowed to name any planet after any female politician born between the years 1900 and 2100.
 1. First Last is not allowed to create a JavaScript framework.
-1. First Last is not allowed to "weaponise the backrooms".
+1. First Last is not allowed to "weaponize the backrooms".
 1. First Last is not allowed to discuss his supposed immortality.
 1. First Last is not allowed to "reveal his final form".
 1. First Last is not allowed to "feel empathy".
