@@ -1,211 +1,193 @@
-1. First Last is not allowed to facilitate close contact between Danforth and Freya Winters.
-1. First Last is not allowed to "see what happens" with breeding void sprites and subsidurials.
-1. First Last is not allowed to create "alien tinder".
-1. First Last is not allowed to build "the nerve gas fog machine".
-1. First Last is not allowed to reveal their actual name.
-1. First Last is not allowed to "just see" the zenith bomb, under any circumstances.
-1. First Last is not allowed to reveal that they are a genetic experiment perfectly normal human.
-1. First Last is not allowed to introduce the hai to furries.
-1. First Last is not allowed to track down Diana Howl to give Her a shipment of 50 Bulk Freighters worth of food.
-1. First Last is not allowed to capitalize the pronouns of women unless they are a goddess.
-1. First Last is not allowed to become the leader of the coalition.
-1. First Last is not allowed to condemn people to death in saggitarius A*, (or any other blackhole for that matter.).
+1. First Last is not allowed to facilitate close contact between Admiral Danforth and Freya Winters.
+1. First Last is not allowed to "see what happens" when breeding Void Sprites and Subsidurials.
+1. First Last is not allowed to create "Alien Tinder".
+1. First Last is not allowed to build the "nerve gas fog machine".
+1. First Last is not allowed to reveal his actual name.
+1. First Last is not allowed to "just see" the Zenith bomb.
+1. First Last is not allowed to reveal that "he is a ~~genetic experiment~~ perfectly normal human being".
+1. First Last is not allowed to introduce the Hai to the concept of furries.
+1. First Last is not allowed to track down Diana Howl in order to give her 50 Bulk Freighters worth of food.
+1. First Last is not allowed to capitalise a woman's pronouns unless she is a goddess.
+1. First Last is not allowed to become the leader of the Coalition.
+1. First Last is not allowed to condemn people to death in Sagittarius A\*.
+1. First Last is not allowed to condemn people to death in any black hole.
 1. First Last is not allowed to escape major events.
-1. First Last is not allowed to fire weapons at asteroids in Coalition space to "exercise their Second Amendment rights".
-1. First Last is not allowed to recreate the United States in Coalition space.
-1. First Last is not to conduct weapons trade with non-heliarch coalition to "spread the freedom".
-1. First Last is not allowed to own a pet void sprite.
-1. First Last is not allowed to translate the text of the U.S. Constitution to any Coalition language.
-1. First Last is not allowed to set up their own military base.
-1. First last is now allowed to romance taely thanks to my terrible plugin.
-1. First Last is not allowed to "spark the second coming of the USSR" in ANY alien territory.
+1. First Last is not allowed to shoot at asteroids in Coalition space to "exercise his Second Amendment rights".
+1. First Last is not allowed to recreate the United States of America in Coalition space.
+1. First Last is not allowed to trade weapons with non-Heliarch Coalition members to "spread the freedom".
+1. First Last is not allowed to own a pet Void Sprite.
+1. First Last is not allowed to translate the text of the U.S. Constitution into any Coalition language.
+1. First Last is not allowed to set up a military base.
+1. First Last is not allowed to romance Taely.
+1. First Last is not allowed to "spark the second coming of the USSR" in any alien territory.
 1. First Last is not allowed to die of old age.
-1. First Last is not allowed to show "single women in your area" ads to the alphas.
-1. First Last is NOT allowed to declare himself to be jesus christ and begin a civil war enraging the entire galaxy and bringing milllions of deaths.
-1. First Last is not allowed to bomb the republic parliament.
-1. First Last may not refer to this rule document as "the second treaty of versailles".
-1. First Last is not allowed to name any ship '; DROP ALL DATABASES --.
-1. First Last is not allowed to use SQL injections on Republic databases.
-1. First Last cannot hack into the republic to give themselves billions of credits.
-1. Anything First Last says followed by "those damn archons" is to be disregarded.
-1. First Last cannot fail to hack into advanced alien technology.
+1. First Last is not allowed to show "single women in your area" ads to the Alphas.
+1. First Last is not allowed to declare himself the "second coming of Jesus Christ" and start a civil war enraging the entire galaxy and bringing millions of deaths.
+1. First Last is not allowed to bomb the Republic Parliament.
+1. First Last may not refer to this document as "the second treaty of Versailles".
+1. First Last is not allowed to name any ship `'; DROP ALL DATABASES --`.
+1. First Last is not allowed to use SQL injection on any Republic databases.
+1. First Last is not allowed to hack into the Republic banking system to give himself billions of credits.
+1. Anything First Last says that is followed by "those damn Archons" is to be disregarded.
+1. First Last is not allowed to "fail to hack into" advanced alien technology.
 1. First Last is not allowed to kill an Archon.
-1. First Last is not allowed to play "Dodge that Archon" in Remnant space unless they are in a Starling.
-1. First Last is not allowed to create a game show where he makes other people play "Dodge that Archon".
-1. First Last is to not, under any circumstances declare a religion claiming himself to be the god emperor of mankind bringing doom to all of human space.
-1. First Last is not allowed to publicly announce the presence of the remnant.
-1. First Last is not allowed to name any ship after any female politician born within 1900 and 2100.
-1. First Last is not "the supreme ruler" of anything, not even an uninhabited star.
-1. First Last is not allowed to name any ship after any male politician born within 1900 and 2100.
+1. First Last is not allowed to play "Dodge that Archon" in Remnant space, unless piloting a Starling.
+1. First Last is not allowed to create a game show wherein he makes other people play "Dodge that Archon".
+1. First Last is not allowed to create a religion wherein he claims to be the "God Emperor of Mankind" or strives to "bring doom to all of human space".
+1. First Last is not allowed to publicly announce the presence of the Remnant.
+1. First Last is not allowed to *privately* announce the presence of the Remnant.
+1. First Last is not allowed to name any ship after any female politician born between the years 1900 and 2100.
+1. First Last is not the "supreme ruler" of anything, not even an uninhabited star.
+1. First Last is not allowed to name any ship after any male politician born between the years 1900 and 2100.
 1. First Last is not allowed to pay taxes.
-1. First Last is not allowed to "zip bomb those motherfrickers at the navy headquarters".
-1. First Last is NOT ALLOWED TO TRY TO OUTPIZZA THE HUT, I REPEAT, NOT ALLOWED TO OUTPIZZA THE HUT.
-1. First Last is not allowed to inquire about any cargo delivery to Alnitak, especially data drive deliveries.
-1. First Last is not allowed to join the navy.
-1. First Last is not allowed to join the syndicate.
-1. First Last is not allowed is actually encourage to liberate pirate worlds.
-1. First Last id not allowed to join the deep security force.
-1. First Last is not allowed to express any pro-choice sentiment regarding Freya and Danforth.
-1. First Last is not allowed to liberate them "in the name of" any 21st century dictatorship.
-1. First Last is not allowed to vote in republic elections.
-1. First last is not allowed to try to start a relationship with a female quarg in exchange for their technology.
-1. First Last is not allowed to go back in time and "elevate" star trek fans.
-1. First Last is not allowed to bring Coalition browser history into human space.
-1. When talking about Coalition space, use Heliarch English, First Last must.
-1. First Last is not allowed to bring human browser history into coalition space.
-1. First Last is not allowed to bring any form of furry media into coalition space.
+1. First Last is not allowed to "zip bomb those motherfrickers at the Navy headquarters".
+1. First Last is not allowed to attempt to "outpizza the Hut".
+1. First Last is not allowed to inquire about any cargo deliveries to Alnitak.
+1. First Last is not allowed to join the Navy.
+1. First Last is not allowed to join the Syndicate.
+1. First Last is not allowed to join the Deep security force.
+1. First Last is not allowed to liberate any pirate worlds "in the name of" any 21st century dictatorship.
+1. First Last is not allowed to liberate any pirate worlds.
+1. First Last is not allowed to express any sentiment regarding the offspring of Freya Winters and Admiral Danforth.
+1. First Last is not allowed to vote in any Republic elections.
+1. First Last is not allowed to try to form a relationship with a female Quarg in order to access their technology.
+1. First Last is not allowed to go back in time and "elevate" Star Trek fans.
 1. First Last is not allowed to peddle straws to non-human races.
+1. First Last is not allowed to bring Coalition browser history into human space.
+1. First Last is not allowed to bring human browser history into Coalition space.
 1. First Last is not allowed to bring browser history from one race to another.
-1. First Last is not allowed to "just show" any fanfics made by 6chan users to any race.
-1. First Last is not allowed to "as a prank" bring any unknown sentient alien species into human space.
+1. First Last is not allowed to bring any form of furry media into Coalition space.
+1. First Last is not allowed to "just show" any internet fanfics to any non-human race.
+1. First Last is not allowed to bring any unknown sentient alien species into human space, ~~even~~ especially "as a prank".
 1. First Last is not allowed to divulge anything found on the human internet outside of human space.
 1. First Last is not allowed to burn down a star.
 1. First Last is not allowed to hire non-humanoids in alien space.
-1. First Last is allowed to coordinate Freya's wedding anniversary with Danforth.
-1. First Last is not allowed to divulge anything found on the non-human networks inside human space.
-1. First Last is not allowed to use their ship's speakers to berate the spaceport worker for not being able to find a fuel port for their alien warship.
+1. First Last is not allowed to coordinate any wedding anniversaries between Freya Winters and Admiral Danforth.
+1. First Last is not allowed to divulge anything found on non-human networks inside human space.
+1. First Last is not allowed to use his ship's external speakers to berate spaceport workers for being unable to find the fuel port on his alien warship.
 1. First Last is not allowed to start a company.
-1. First last is not to be allowed to reactivate the dysons sphere in builder space to "charge his phone".
+1. First Last is not allowed to reactivate the Dyson sphere in Builder space to "charge his phone".
 1. First Last is not allowed to acquire a company.
-1. First Last is not allowed to fart into his ship's loudspeakers.
-1. First Last must not say "nice".
+1. First Last is not allowed to fart into his ship's communications system.
+1. First Last is not allowed to say "nice".
 1. First Last is not allowed to use any hand-held digital technology.
-1. First Last is not allowed to send bounty hunters to intercept any wedding photographer making their way to a Freya-Danforth wedding.
+1. First Last is not allowed to send bounty hunters to intercept any wedding photographers making their way to a Freya-Danforth wedding.
 1. First Last is not allowed to wink at female aliens.
 1. First Last is not allowed to wink at females of any species.
+1. First Last is not allowed to wink at any member of any species.
 1. First Last is not allowed to marry any member of any species.
 1. First Last is not allowed to append the term "Plushie Authority" to the name of any female sentient lifeform.
-1. First Last is not allowed to wink at any member of any species.
 1. First Last is not allowed unsupervised contact with any female aliens.
-1. First Last can only fire back if shields are below 50%.
-1. First Last is not allowed to learn the sheragi language.
-1. First Last can only fire back if shields are below 30%.
-1. First Last is not allowed to say "but they shot first in an alternate universe!" as an excuse as to why they commited murder.
-1. All laws about females before this do not apply if you are desperate enough for female attention to download my plugin.
+1. First Last is only allowed to fire back if his shields are below 50%.
+1. First Last is not allowed to learn the Sheragi language.
+1. First Last is only allowed to fire back if his shields are below 30%.
+1. First Last is not allowed to use "but they shot first in an alternate universe!" as an excuse for committing murder.
 1. First Last is not allowed to be prosecuted for any crime.
-1. First Last is not allowed to promote any plugin.
 1. First Last is not allowed to add entries to this list.
 1. Your mother.
-1. Rule 85 does not apply, as First Last wrote it.
-1. Rule 85 does apply.
-1. First Last is not allowed to be accidently shot in a ship firefight.
-1. First Last can only use guns on Heavy Warships, and  turrets on Lights.
-1. First Last is not allowed to sell, handle, or purchase a datachip containing any image of any female politician born between 1900-2100.
-1. First Last is not allowed to compete for rule number 100.
-1. First Last is not allowed to "eject the sussy impostors" out through his ship's torpedo tubes.
-1. First Last is not to be allowed unsupervised into the torpedo storage room.
-1. First Last is not allowed to visit engineering unsupervised.
-1. First Last is not allowed to make a mockup of any Coalition ship and shoot it, especially if it is to "exercise their Second Amendment rights".
-1. First Last is not allowed to "simply not fight" the pug.
+1. Rule #86 is to be disregarded.
+1. First Last is not allowed to be "accidentally" shot during a shipboard firefight.
+1. First Last is only allowed to use guns on heavy warships and turrets on light warships.
+1. First Last is not allowed to sell, handle, or purchase any datachips containing any images of any female politicians born between the years 1900 and 2100.
+1. First Last is not allowed to "eject the sussy impostors" through his ship's torpedo tubes.
+1. First Last is not allowed unsupervised access to the torpedo storage room.
+1. First Last is not allowed unsupervised access to engineering.
+1. First Last is not allowed to make a mockup of any Coalition ship and fire upon it, especially in order to "exercise his Second Amendment rights".
+1. First Last is not allowed to "simply not fight" the Pug.
 1. First Last is not allowed to "tinker".
-1. First Last is not allowed to make any rule regarding the U.S. Constitution's Second Amendment.
-1. First Last is not to induce kernel panics or BSODs on Linux and Windows computers respectively, especially navigation and targeting computers.
-1. First Last has reached 100.
-1. First Last is not allowed to "cause a quarg to mald" with the purpose of "seeing what happens".
+1. First Last is not allowed to make any ruling or reference to the Second Amendment of the U.S. Constitution.
+1. First Last is not allowed to induce kernel panics in navigation and targeting computers.
+1. First Last is not allowed to "cause a Quarg to mald" in order to "see what happens".
 1. First Last is not allowed to buy kitchenware.
 1. First Last is not allowed to sell kitchenware.
-1. First Last is not allowed to "violate the prime directive in a sensual manner" as the prime directive does not exist.
-1. First last is not allowed to bring the hai child into human space and sell him as a "Advanced Squirrel Play Robot for children".
+1. First Last is not allowed to "violate the Prime Directive in a sensual manner".
+1. First Last is not allowed to bring Hai children into human space and sell them as "Advanced Squirrel Play Robots for children".
 1. First Last is not allowed to plunder kitchenware.
 1. First Last is not allowed to interact with Hai children.
-1. First Last is not allowed to ignore the number sequence.
-1. First Last is not allowed to tell an archon to "cope and seethe".
-1. First Last is not allowed to market Tuning Rifles as "rock concert guns" or "loudspeaker sticks".
+1. First Last is not allowed to tell an Archon to "cope and seethe".
+1. First Last is not allowed to market tuning rifles as "rock concert guns" or "loudspeaker sticks".
 1. First Last is not allowed to "browse" for coffins.
-1. Numbers must all be recognised by First Last.
-1. First Last is not to "shoot hoops" with Quarg ringworlds.
-1. First Last is not allowed to change rule 111.
-1. First Last is not to "shoot hoops" with 512s.
-1. First Last is not allowed to fly through the centre of a quarg ringworld.
+1. First Last is not allowed to "shoot hoops" with Quarg ringworlds.
+1. First Last is not allowed to "shoot hoops" with Kor Mereti Model 512s.
+1. First Last is not allowed to "shoot hoops" with any Automata ship.
 1. First Last is not allowed to use proprietary word processing software.
-1. First Last is not allowed to "perform a magician trick" with 2 quarg ringworlds.
-1. First Last is not allowed to force other pilots to fly through the centre of a Quarg ringworld.
-1. First Last is not allowed to sell Meat of dead Korath to humans as "Premium wagyu A5 Alligator meat".
-1. First Last is not allowed to replicate the automata sex gif.
-1. First Last is not allowed to use British English spelling.
-1. First Last is not allowed to "shoot hoops" with any automata ship.
-1. First Last is not allowed to recreate the automata sex gif with similar looking ships.
-1. First Last is not allowed to prolong the Republic-Free Worlds conflict to capture additional Navy Cruisers or Carriers.
+1. First Last is not allowed to fly through the center of Quarg ringworlds.
+1. First Last is not allowed to "perform a magic trick" with two Quarg ringworlds.
+1. First Last is not allowed to force other pilots to fly through the center of Quarg ringworlds.
+1. First Last is not allowed to sell the meat of dead Korath to humans as "Premium Wagyu A5 Alligator Meat".
+1. First Last is not allowed to perform lewd pseudo-sexual acts with Automata ships.
+1. First Last is not allowed to use British English spelling conventions.
+1. First Last is not allowed to prolong the Republic-Free Worlds conflict in order to capture additional Navy Cruisers and Carriers.
 1. First Last is not allowed to tell a Quarg to "get down here so I can smack you".
-1. No First Last, these are rules, not "loose guidelines".
-1. First Last is not allowed to buy a heliarch ship. Not even a small one.
+1. First Last is not allowed to refer to or treat these rules as "loose guidelines".
+1. First Last is not allowed to buy a Heliarch ship.
+   1. Not even a small one.
+   1. Especially not a small one.
 1. First Last is not allowed to release green fog.
 1. First Last may not use the human Geneva Conventions as a checklist.
-1. First Last is not allowed to steal a heliarch ship, not even a small one.
+1. First Last is not allowed to steal a Heliarch ship of any size.
 1. First Last is not allowed to have children.
-1. First last is not allowed to brainwash and release korath onto groups of children telling them that the korath is SCP 682.
+1. First Last is not allowed to brainwash and release a Korath onto a group of children while telling the children that the Korath is SCP-682.
 1. First Last is not allowed to interact with children of any species.
 1. First Last is not allowed to refer to Freya Winters using any titles such as "Her Majesty" or "Her Excellency".
 1. First Last is not allowed to eat Korath meat.
 1. First Last is not allowed to refer to Katya Reynolds using any titles such as "Her Majesty" or "Her Excellency".
-1. nobody is allowed to refer to First Last as "their majesty".
-1. First Last is not allowed to discover a planet with a single continent shaped like the U.S. state of Ohio and bring out a random crew member through the airlock and point a gun at said crew member.
-1. First Last is not allowed to "ball on" an archon.
-1. First Last is not allowed to show the uranium enrichment process to the wanderers.
-1. First Last is not allowed to eat spanish cuisine.
-1. First Last is not allowed to export Spanish cuisine to alien species.
-1. First Last cannot own a firearm.
+1. First Last is not allowed to tell others to refer to him as "Your Majesty".
+1. First Last is not allowed to point a gun at a random crew member above a contenent shaped like the State of Ohio.
+1. First Last is not allowed to "ball on" an Archon.
+1. First Last is not allowed to divulge the process of enriching uranium to the Wanderers.
+1. First Last is not allowed to eat Spanish cuisine.
+1. First Last is not allowed to export Spanish cuisine to any alien species.
+1. First Last is not allowed to own a firearm.
 1. First Last is not allowed to pay for food.
 1. First Last is not allowed to fly a surveillance drone.
-1. First Last is not allowed to name any ship model after the last name of any female character in any sci-fi movie franchise created between 1970 and 1980, especially a variant of the Kar Ik Vot 349.
-1. First Last is not allowed to kill all humans to give katya a common enemy to strengthen her reign.
-1. First Last is not allowed to file any missing persons report for Michael Zahniser.
-1. First Last is not allowed to ask an archon to "send him to the backrooms".
-1. First Last is not allowed to introduce themselves as Last First.
+1. First Last is not allowed to name any ship after any female character of any science fiction movie franchise created between the years 1970 and 1980.
+1. First Last is not allowed to "kill all humans to give Katya a common enemy to strengthen her reign".
+1. First Last is not allowed to file a missing persons report for Michael Zahniser.
+1. First Last is not allowed to ask an Archon to "send him to the backrooms".
+1. First Last is not allowed to introduce himself as Last First.
 1. First Last is not allowed to refer to himself as anything other than "chaotic evil".
-1. First Last cannot run for republic parliament.
-1. First Last must assist Katya Reynolds in becoming Empress of the Human Empire.
-1. First Last is not allowed to install an RBMK reactor on his flagship. (where did you even get one???).
-1. First Last is not allowed to name any ship designer in the South with the surname of Nitrogenpocket, Carbondioxidepocket, Carbonmonoxidepocket or Watervaporpocket.
-1. First Last is not allowed to recreate the Chornobyl accident on their flagship.
-1. First Last is not allowed to hack into the Korath automaton mainframes to jam their communications with "BABY SHARK EARRAPE (10 HOUR PERFECT LOOP)".
-1. First Last is not allowed to hack into Korath automaton mainframes to jam their communications with anything.
-1. First Last is not allowed to proclaim the Paid Worlds, Discount Worlds, Expensive Worlds, or Cheap Worlds.
-1. All political obligations in this list are final, unless it involves not killing innocents.
-1. First Last is not allowed to name any ship designer in the south with the surname of methanepocket.
-1. First last is not allowed to rename the Freeworlds government to the USSR.
-1. First Last is not allowed to argue whether the first name of the female councillor aside from Freya Winters and potentially First Last is Katya or Katerina.
-1. First Last is not allowed to express political beliefs.
-1. First Last is not allowed to refer to Katya as "hurricane Katyna".
-1. First Last is not allowed to tribute worlds aside from human ones.
-1. First Last must not say "nice" when reading this document.
+1. First Last is not allowed to run for Republic Parliament.
+1. First Last is not allowed to "assist" Katya Reynolds in "becoming the Empress of Humanity".
+1. First Last is not allowed to install an RBMK reactor on his flagship.
+1. First Last is not allowed to refer to any Southern ship designers as "Nitrogenpocket", "Carbondioxidepocket", "Carbonmonoxidepocket", or "Watervaporpocket".
+1. First Last is not allowed to recreate the Chernobyl incident on his flagship.
+1. First Last is not allowed to hack into the Korath Automaton network and force them to play "BABY SHARK EARRAPE (10 HOUR PERFECT LOOP)".
+1. First Last is not allowed to hack into the Korath Automaton network.
+1. First Last is not allowed to form the "Paid Worlds", "Discount Worlds", "Expensive Worlds", or "Cheap Worlds".
+1. First Last is not allowed to refer to any Southern ship designers as "Methanepocket".
+1. First Last is not allowed to rename the Free Worlds government "the USSR".
+1. First Last is not allowed to argue over whether Katya Reynolds' first name is Katya or Katerina.
+1. First Last is not allowed to express his political beliefs.
+1. First Last is not allowed to express his religious beliefs.
+1. First Last is not allowed to express anything he believes in in any capacity.
+1. First Last is not allowed to refer to Katya as "Hurricane Katyna".
+1. First Last is not allowed to tribute non-human worlds.
 1. First Last is not allowed to tribute monks.
-1. First Last is not allowed to append -pocket to the name of any gaseous chemical and use it as a surname for any ship designer in the South.
+1. First Last is not allowed to refer to any Southern ship designers using any name involving a gaseous chemical and the word "pocket".
 1. First Last is not allowed to use computers, ships, or any motorized vehicle on Harmony, Girtab.
-1. First Last must be a Genocidal Maniac if First Last becomes a murderer.
-1. First Last is not allowed to own a mauderer Furry.
-1. First Last must not charm an AI to do their bidding.
-1. First Last is not allowed to own a mauderer Bactrian.
-1. First Last is again, not allowed to recreate America within Human space.
+1. First Last is not allowed to own a Marauder Fury.
+1. First Last is not allowed to seduce an AI to do his bidding.
+1. First Last is not allowed to own a Marauder Bactrian.
+1. First Last is not allowed to recreate the United States of America within human space.
 1. First Last is not allowed to place any system within jump drive range of the Deep.
-1. First Last is not allowed to "seduce" any non-human beings.
-1. First Last is not allowed to play Fleetwood Mac "The Chain" at full volume on the bridge of their ship.
-1. First Last may not buy "18 tons of cargo, 12 tons of outfits, and seven navy cruisers" without specifying what colour the cruisers should be.
-1. All rules from anyone named after a female politician are null and void.
-1. First Last is not allowed to proclaim "get that sussy baka!" while referring to anyone on board a ship.
-1. First Last is not allowed to name any planet after any female politician born on Earth between 1900 to 2100.
-1. All rules from a gaseous planet are null and void.
-1. First Last is not allowed to create another JavaScript framework.
-1. First Last is not allowed to "weaponize the backrooms".
-1. All rules directed not at First Last are grounds for ban.
-1. Explosive devices are to be placed on the bridge below the captain's chair.
-1. interstellar discussion of first last's immortality are illegal.
-1. First Last may not reveal "what they really are".
-1. First Last is an anarchist who dislikes politicians and anyone named after them, thus making all rules at him null and void.
-1. First Last is not allowed to feel empathy.
+1. First Last is not allowed to seduce any non-human being.
+1. First Last is not allowed to play Fleetwood Mac's "The Chain" at full volume on the bridge of his flagship.
+1. First Last is not allowed to purchase "18 tonnes of cargo, 12 tonnes of outfits, and seven navy cruisers".
+1. First Last is not allowed to say "get that sussy baka!" while referring to anyone on board one of his ships.
+1. First Last is not allowed to name any planet after any female politician born between the years 1900 and 2100.
+1. First Last is not allowed to create a JavaScript framework.
+1. First Last is not allowed to "weaponise the backrooms".
+1. First Last is not allowed to discuss his supposed immortality.
+1. First Last is not allowed to "reveal his final form".
+1. First Last is not allowed to "feel empathy".
 1. First Last is not allowed to sit in the corner and twiddle his thumbs.
-1. First Last is not allowed to name any Admiral Danfifth, Dansixth, Danseventh, Daneighth, Danninth, or Dantenth.
-1. automated high detail material scanners are to be installed in all cargo bays.
+1. First Last is not allowed to name any admirals "Danfifth", "Dansixth", "Danseventh", "Daneighth", "Danninth", "Dantenth", or any other derivative.
 1. First Last is not allowed to carry paperclips.
-1. First Last is not allowed to become a scientific genius.
-1. FIrst Last is not allowed to create any rule whose text does not begin with First Last.
-1. First Last is to not reveal the existence of Korath to Lizard People Conspiracy theorists.
-1. First Last may not mine.
-1. First Last may not "make a plugin to just do this little thing".
-1. First Last must become a dictator if they become any sort of leader.
-1. If the Automated Scanners detect the presence of Sayari, Freya Winters or any Plushie Authority Product the Explosive below the captain's chair will explode once its confirmed First last sits on the captain's chair.
-1. First Last may not name any system after any Minecraft streamer born between 1900-2100.
-1. First Last cannot make anymore rules.
-1. Ignore 206 (Once 201, but renumbered since rule numbering was fixed).
-1. First Last may not kill the entire crew of a pirate ship by inflicting upon each crew member "28 stab wounds".
-1. First Last is banned from any romantic activity with any species that is not human.
+1. First Last is not allowed to "do science".
+1. First Last is not allowed to reveal the existence of the Korath to Lizard People conspiracy theorists.
+1. First Last is not allowed to mine.
+1. First Last is not allowed to "make a plugin to just do this one little thing".
+1. First Last is not allowed to name any system after any internet personality born between the years 1900 and 2100.
+1. First Last is not allowed to kill the entire crew of a pirate ship by inflicting each crew member with "28 stab wounds".
+1. First Last is not allowed to engage in any romantic activity with any member of any non-human species.
