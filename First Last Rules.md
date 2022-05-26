@@ -133,7 +133,7 @@
 1. First Last is not allowed to eat Korath meat.
 1. First Last is not allowed to refer to Katya Reynolds using any titles such as "Her Majesty" or "Her Excellency".
 1. First Last is not allowed to tell others to refer to him as "Your Majesty".
-1. First Last is not allowed to point a gun at a random crew member above a contenent shaped like the State of Ohio.
+1. First Last is not allowed to point a gun at a random crew member above a continent shaped like the State of Ohio.
 1. First Last is not allowed to "ball on" an Archon.
 1. First Last is not allowed to divulge the process of enriching uranium to the Wanderers.
 1. First Last is not allowed to eat Spanish cuisine.
