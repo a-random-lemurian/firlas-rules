@@ -191,3 +191,12 @@
 1. First Last is not allowed to name any system after any internet personality born between the years 1900 and 2100.
 1. First Last is not allowed to kill the entire crew of a pirate ship by inflicting each crew member with "28 stab wounds".
 1. First Last is not allowed to engage in any romantic activity with any member of any non-human species.
+1. *This rule has been redacted.*
+1. *We don't talk about this rule.*
+1. *This rule has been nullified..*
+1. *This rule has been repealed.*
+1. *This rule has been deleted.*
+1. *This rule has been withdrawn from public view.*
+1. *This rule has been expunged.*
+1. *This rule has been ruled unconstitutional.*
+1. *This rule has been set aside as a placeholder.*
