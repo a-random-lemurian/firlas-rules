@@ -191,3 +191,4 @@
 1. First Last is not allowed to name any system after any internet personality born between the years 1900 and 2100.
 1. First Last is not allowed to kill the entire crew of a pirate ship by inflicting each crew member with "28 stab wounds".
 1. First Last is not allowed to engage in any romantic activity with any member of any non-human species.
+1. First Last is not allowed to vote for any female politician in any election.
