@@ -1,0 +1,9 @@
+name: Other
+description: Other stuff
+labels: [fresh]
+body:
+  - type: textarea
+    id: main
+    attributes:
+      label: Issue information
+      description: Type anything in here.
