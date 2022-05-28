@@ -200,3 +200,162 @@
 1. *This rule has been expunged.*
 1. *This rule has been ruled unconstitutional.*
 1. *This rule has been set aside as a placeholder.*
+1. Several rules have been numbered 201:
+    * This list is final, and any attempt to change the Holy Words deemed here today will result in a slapfight with King Kong.
+    * First Last is not allowed to introduce "cock and ball torture" to the quarg.
+1. First Last cannot talk with the drak.
+1. First Last is not allowed to "aggressively reverse engineer" the hadron collider.
+1. First Last is not allowed to inject a zip bomb into remnant security.
+1. First Last is not allowed to ask Katya to do coitus.
+1. First Last is not allowed to crash the interstellar Stock market with Alien technology
+1. First Last is not allowed to make a company that makes Free Worlds Female Character NSFW dolls.
+1. First Last is not allowed to have a star destroyer, "why not?" because they're fictional.
+1. First Last is not allowed to comment on why the Quarg ringworld in Korath space has a human escalator.
+1. First Last is not allowed to marry katya reynolds and become the emperor of mankind
+1. First Last is not allowed to refer to a quarg ringworld as a "cosmic cheeri-o"
+1. First Last SHOULD NOT reference Warhammer 40k in one way or another.
+1. There is no such thing as Plugins
+1. First Last is not allowed to file a missing persons report for Freya Winters with the police departments of Rasalhague, Zeta Aquilae, Vega, Altair, Alderamin, Delta Capricorni, or any Pug-controlled world.
+1. First Last is not allowed to speak of "pug soccer" when in the presence of pug children
+1. First Last is not allowed to speak of "pug soccer" in the presence of any pug.
+1. All missions accepted by First Last are final. They cannot be forfeited.
+1. First Last is not allowed to say "Lizard kabolds" infront of a Korath
+1. First Last is not allowed to splash green paint on any galaxy map.
+1. First Last is not allowed to splash orange or brown paint on any galaxy map.
+1. First Last is not allowed to splash blue paint on any galaxy map. 
+1. First Last is not allowed to lasso an Archon and "ride 'em cowboy". 
+1. First Last is not allowed to sell the skins of dead Hai as "Hyperrealistic fursuits".
+1. First Last is not allowed to tell an Archon they have "big dick energy"
+1. First Last is not allowed to claim a void sprite and name it hector voider 
+1. First Last is not allowed to say "Void sprite sucks ass" in front of an archon
+1. First Last is not allowed to submit any symbol of any alien language except those spoken by the Quarg to the Unicode Consortium.
+1. First last is not to try to Take a Arachni child and sell it as a "Australian Spider"
+1. First Las is not allowed to keep a Wanderer in a birdcage.
+1. First Last is not allowed to say "Polly want a cracker?" to any Wanderer. 
+1. First Last is not allowed to cosplay as Rango the lizard with dead korath skin
+1. First Last is not allowed to edit lady dimitrescu's hat onto any wanderer.
+1. First Last is not allowed to file a patent for a "jump drive farm".
+1. First Last is not allowed to lick the hyperdrive while on hyperjump.
+1. First Last is to not give plundered Alien technology to Pirates to they can "Do a little trolling"
+1. First Last is not allowed to file a patent for a "subsidurial leash".
+1. First Last is not allowed to call the Republic as generic.
+1. First Last is not allowed to interrogate the remaining 12 humans who understand the workings of the hyperdrive for information on it's inner workings.
+1. First Last is not allowed to kidnap furries and drop them into a coalition world.
+1. First Last is not allowed to capture subsidurials and sell it as fleshlights.
+1. First last is not allowed to Take part of the Korath Nanomachine swarm and Throw it Onto sol because "They saw something like that in a movie sometime".
+1. First Last is not allowed to deprive any world of sunlight using their large fleet.
+1. First Last is not allowed to deprive any world of sunlight.
+1. First Last is not allowed to explode a planet's moon because they insulted niko bellic. 
+1. First last is not to swap out the exotic lizard for a korath because "They looked similar"
+1. First Last is not allowed to murder TMBR fans by allowing them to cling to the ship door in the vacuum of space.
+1. First Last is not allowed to shoot a crew member just because they said plushies suck.
+1. First Last is not allowed to go to a TMBR concert, not after the incident.
+1. First Last must only have a moon base or a pirate world base.
+1. First Last shouldn't make lists.
+1. First Last must despise Let there be Riots.
+1. First Last is not allowed to install any distribution of Linux on any ship navigation computer that was running Windows before it was captured or bought.
+1. First Last is not allowed to install any distribution of Linux on any ship navigation computer that was running Mac before it was captured or bought.
+1. First Last is encouraged to pirate Windows.
+1. First Last is not allowed to accept any torrent delivery missions to any Pirate world.
+1. First Last must always be gullible to accept scams.
+1. First Last is not allowed to kidnap forum trolls and drop them on any uninhabited planet.
+1. First Last must only ferry people if they pay him lots of money.
+1. First Last isn't allowed to make a blog on how hot the Hai are 
+1. First Last isn't allowed to make comments about the quaernan
+1. First Last is not allowed to declare "nerve gas fines" on their tax returns as "transport fees" or "hazardous material transportation licensing fees".
+1. First Last is not allowed to create "squirrelboy" magazines. 
+1. First Last is not permitted to "charitably" feed Korath so they can have "plump, healthy lizard maids".
+1. First Last is not allowed to pirate and send the Alvin and the chipmunks movie as an "Hai Movie"
+1. Rule 261 is to be disregarded if First Last is desperate enough
+1. First Last is not allowed to ingest some of the illegal pharma products, Just because you wanted a good time.
+1. First Last is not allowed to install Git on their ship computer.
+1. First Last is not allowed to take "scalies" and drop them on a korath world.
+1. First Last is permitted to disregard 264. If you are a sick person
+1. First Last is not allowed to murder all their crewmates to "stop the Rigellian Plague".
+1. First Last is not allowed to crossbreed Kor Efreti and Wanderers because "dinosaurs and birds are the same thing".
+1. First Last is not allowed to have children from your crew
+1. First Last is not permitted to sleep with a crew member
+1. First Last is not allowed to get any of the coalition addicted to methamphetamine.
+1. First Last must not make immortal clones of themselves and take over the universe... unless Korathi or Sheragi DNA is injected into some of them.
+1. First Last should always be permitted to be informed about the list 
+1. First Last is not allowed to tear up any marriage certificate with the names "William Danforth" and "Freya Winters" on it. 
+1. First Last is not allowed to drop a EMP torpedo Onto sol because "it Would be funny"
+1. First Last is not allowed access to any nuclear fission reactor.
+1. First Last is not allowed to call Katya as CUNNY!
+1. First Last must unite Scotland
+1. First Last may not own a shotgun to "go DOOM all over their pirate asses"
+1. First Last is not allowed to escort a convoy to Tarazed if the convoy contains "streamer worship supplies". 
+1. First Last is not allowed to wear a femboy furry costume.
+1. First Last must transport all cargo to Alnitak on ships laden with interference plating.
+1. First last is not to try and crossbreed all Alien races to "make the alphas but cooler" 
+1. First Last may only refer to Katya as Empress Katya if she is in any political seat or office.
+1. First Last is not allowed to be stupid at numbering.
+1. First Last is not allowed to have a flamethrower. 
+1. First Last is not allowed to destroy timelines with experimental untested machines in any attempt to fix numbering errors.
+1. First Last is not allowed to make a government by tributing planets.
+1. First Last is not allowed to splash green paint on any monitor showing their GitHub profile to "look more appealing to employers".
+1. First Last is not allowed to govern anything, not even an ant farm.
+1. First Last is not allowed to call their government The Communist Tribute
+1. First Last is not allowed to attach trackers to any ship that is not an escort or a part of their fleet.
+1. First Last is not allowed to hack the Republic Government Leaders Laptops to find their browser history.
+1. First Last is not allowed to break causality in any way
+1. First Last is not allowed to call the government corrupt while simping the syndicate
+1. First Last is not allowed to refer to the Syndicate as a criminal organization until it is revealed that they were responsible for the nuclear bombing of Martini and Geminus.
+1. First Last is not allowed to put more than one nuclear warhead at a time in a missile or torpedo 
+1. First Last is not allowed to declare chats "dead" unless no message has been sent for more than 400 Earth seconds.
+1. First Last is not allowed to fire more than 12 nuclear missiles from any single ship.
+1. First Last is not allowed within 10 feet of a copy of Kerbal Space Program or any of KSP's sequels
+1. First Last is not allowed to drink Tea 
+1. First Last is not allowed to associate with any British tea salesperson.
+1. First Last is not allowed to colonise India or China.
+1. First Last is not allowed to replicate kerbal kind using genetic technology
+1. First Last is not allowed to drink any hot beverages except Hot Chocolate, Coffee and Mochas
+1. First Last is not allowed to purchase more than 300 liters of green body paint per Earth year.
+1. First Last is not allowed to land on small moons using a jet-pack
+1. First Last is not allowed to purchase cloud servers to AFK in Mesuket for more than 72 Earth hours.
+1. First last is not allowed to turn Asteroids into any type of starship 
+1. First Last is not allowed to turn asteroids into any type of space station
+1. First Last is not allowed to cite slow internet connection speeds as an excuse for breaking causality or the rule numbering system.
+1. First Last is not allowed to put weapons larger than 50 tons in a rotary cannon configuration
+1. First Last is not allowed to file copyright claims against any rule. 
+1. First Last is not allowed to duplicate rules.
+1. First Last is not allowed to shove a sparrow in the barrel of a Dragonflame, fire it at Earth's capital city, and shout "Happy Independence Day"
+1. First Last is not allowed to open an "Old Baccy" museum showcasing the pre-Saugia Bactrian.
+1. Weapons that use Temporal Mechanics in any critical part of the weapon are not allowed to be installed on First Last's Heavy Warships 
+1. First Last is not allowed to teach math. 
+1. First Last is not allowed to kidnap a wanderer and put them in an aviary.
+1. First last is not allowed to play gacha games
+1. First Last is not allowed to lengthen the time of day by being AFK in Mesuket.
+1. First Last is not allowed to ride a coalition centaur.
+1. First Last is not allowed to roast chicken using their ship's engines.
+1. First Last is not allowed to cook for other people
+1. First Last is not allowed to fly ships from other universes
+1. After several recent accounts, never under any circumstances is first last permitted to kidnap a Korath Efreti civillian, fly to Exile space, kill a Korath Exile citizen, and replace them as if nothing happened.
+1. First Last is not allowed to jettison data chips in orbit of any planet with strong censorship laws to "exercise their First Amendment rights".
+1. First Last is not required to submit to a search of any data chips on their ship in accordance with the Fifth Amendment.
+1. First Last has the right to flip the gravity plating on the Sector H7/Deck 2 of a Quarg Skylark
+1. As per rule 322, first last is not permitted to alter the population make-up of any currently existing or future alien civilizations.
+1. First Last is not allowed to cite the United States Constitutional rights when in alien space.
+1. First Last may not refer to themselves as "Initial Final" or "Givenname Surname".
+1. First Last is not allowed to carry a Sword of any kind unless under expert supervision
+1. First Last may not transport human clothing into Coalition space.
+1. First Last is strictly prohibited from illegally and immorally acquiring DNA samples from the fallen Sheragi of the Emerald Sword in an attempt to resurrect the Sheragi.
+1. First Last is not allowed to name a ship "Ring of Glory"
+1. First Last is not allowed to burn Christian crosses to summon "half-Satan".
+1. First Last is not allowed to burn anything without supervision from several firefighters
+1. First Last may not transport human religious missionaries into alien territory.
+1. First Last may not ignore rule 335 citing "godless quarg".
+1. First Last not allowed to jettison any item in a decaying orbit around a star 
+1. First Last is not allowed to kidnap a wanderer and force them into a photoshoot for "realistic twitter logos" 
+1. First Last is not allowed to play hide and seek in the Ember Wastes.
+1. First last is not allowed to place ice asteroids in front of starqueens
+1. First Last is not allowed to create a variant of the Star Queen and rebrand it as the Star King.
+1. First Last is not allowed to disperse data chips in any remote region of space to "create a data backup system".
+1. First Last is not allowed to interact with the player and break the 4th wall by any means. 
+1. First Last is not allowed to drop off unwanted data chip waste on Alexandria.
+1. First Last is not allowed to have conscious knowledge of itself as the concept of First Last.
+1. First Last is not allowed to bring a lighter into alexandria.
+1. First Last is not allowed to destroy data backups of the archives of Alexandria.
+1. First Last is not allowed to "just ping" a horse. Especially the horse
+1. First Last is not allowed to call an Archon an "absolute fricking unit"
+1. First Last is not allowed to disperse nerve gas into the atmosphere of any pirate world to "capture a planet".
