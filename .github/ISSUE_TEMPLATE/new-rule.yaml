@@ -1,0 +1,15 @@
+name: New Rule
+description: Give First Last a new rule
+labels: [new rule]
+body:
+  - type: textarea
+    id: rule-explanation
+    attributes:
+      label: Explanation of rule
+      description: Why should this rule be added? Additionally, if desired, you can explain if the rule is a reference.
+  - type: input
+    attributes:
+      label: Rule
+      description: Please type in the rule here.
+    validations:
+      required: true
