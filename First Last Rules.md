@@ -417,3 +417,4 @@
 1. First Last may not create a time machine using tomorrow's newspaper, a coat hanger and a banana under any circumstances. 
 1. First Last is not allowed to open a donut shop within 1 kilometer of any shipyard.
 1. First Last is not allowed to open a donut shop any further than 1 kilometre away from the nearest outfitter.
+1.  First Last is not allowed to weld fighters on to their ship to "Create More Gun Ports".
