@@ -359,3 +359,61 @@
 1. First Last is not allowed to "just ping" a horse. Especially the horse
 1. First Last is not allowed to call an Archon an "absolute fricking unit"
 1. First Last is not allowed to disperse nerve gas into the atmosphere of any pirate world to "capture a planet".
+1. First Last is not allowed to capture a planet.
+1. First Last may not receive tribute income greater than 200 thousand credits a day.
+1. First Last may not count ships in order to "drift off" at night
+1. First last is not allowed to break the 4th wall to make rules
+1. First Last is not allowed to do the thing he is currently thinking about 
+1. All rules, no matter how profound or stupid, must be followed, honoured, and remembered. 👍
+1. Every rule before this one is false.
+1. First Last is not allowed to destroy crates of data chips in orbit of planets with strong anti-censorship laws.
+1. First Last cannot buy the Bank 
+1. First Last is not allowed to pitch alternative operating systems to any outfitter or shipyard.
+1. First Last is not allowed to board Heliarch ships and steal the scanning modules to "exercise his/her Fourth Amendment rights".
+1. First Last is not allowed to brag about their Second Amendment rights in Coalition space.
+1. First last is prohibited from installing a jump drive on a planet and moving it somewhere else.
+1. First Last is not allowed to become the republic president just because they nuked sol. 
+1. First Last is not allowed to AFK in Mesuket for 1 Earth year or longer.
+1. First Last is not allowed to call killing innocent people as order 66.
+1. First Last is not allowed to file a patent for any alien outfit harvesting farm. Prohibited farms include jump drive farms, disruptor farms, slicer farms, heat shunt farms, Heliarch scanning module farms, and skylance farms.
+1. First Last is not allowed to have parents.
+1. First Last is not allowed to capture a Model 512, bring it to human space and claim that it is a "Drak hypergate".
+1. First Last is not allowed to call a automata as the Internet god.
+1. First Last is not allowed to attach Kor Mereti war drone pods to any Quarg ringworld to create a "Model 1048576".
+1. First Last is not allowed to shit anywhere on outer space.
+1. First Last is not allowed to steal a Quarg ringworld by attaching a jump drive to it, and definitely not to create a "Model 1048576".
+1. First Last considering attaching a goddamn jump drive on a planet's core is not allowed.
+1. First Last may not ever enter a lifepod when their ship is about to blow up. Ever.
+1. First Last may not enter jump to another system while piloting a fighter or drone.
+1. First Last is not allowed to artificially create stars outside of power generation applications
+1. First Last is not allowed to create a miniature ember waste for power generation applications or any other reason.
+1. First Last is not allowed to egg ~~Quarg houses~~ anything belonging to any alien on Halloween day.
+1. First Last is not allowed to establish a "Navy ship buffet" by towing disabled Navy ships to a remote area of space and selling off the coordinates to fellow Free Worlds pilots.
+1. First Last is not allowed to "play DOOM in real life" on a pug planet.
+1. First Last is not allowed to create statues of women and have them rest in orbit around any planet.
+1. First Last is not allowed to speak or even think about "shipifying humans"
+1. First Last is not allowed to build a pleasure center where people pay to be hit by a Pug Peacekeeping Staff for recreational purposes.
+1. First Last is not allowed to act out any fantasy experienced while under the influence of a Pug Peacekeeping Staff.
+1. First Last is not allowed to become a druglord selling pug peacekeeping staffs. 
+1. First Last is not allowed to tip off any alien rights organization about the operations of any alien outfit farm.
+1. First Last is not allowed to sit in a chair and eat a plain loaf of bread, not after the incident
+1. First Last is not allowed to run an alien outfit farm.
+1. First Last is not allowed to utilize Remnant living metal technology to create humanoid ships.
+1. First Last is not allowed to sexualize the Albatross because "god damn, bro, she got curves"
+1. First Last is not allowed to create any movie, TV show, or work of fiction based on anything experienced while under the influence of a Pug Peacekeeping Staff.
+1. First Last is not allowed to kidnap Charles Atinoda and place him under the influence of a Pug Peacekeeping Staff to generate new ship models.
+1. First Last is not allowed to milk the Pug Peacekeeping Staff for jokes.
+1. First Last is not allowed to use cluster bombs on ship crew and sell access to the injured crew to medical students for money.
+1. First Last is not allowed to read this rule on any web server, they have been forbidden from doing so.
+1. First Last is not allowed to find this rule. It will never be found.
+1. First Last is not allowed to use cluster bombs on ship crew and sell access to the injured crew to medical students for sexual pleasure.
+1. First Last may not buy more than 50 thousand tons of material without completely filling their cargo hold.
+1. First Last is not allowed to harass the Drak for jump drive blueprints to exercise their "right to repair".
+1. First Last is not allowed to harass the quarg for jump drive blueprints to exercise their "right to repair"
+1. First Last is not allowed to harass the korath for jump drive blueprints to exercise their "right to repair"
+1. First Last may not draw thicc fanart of the korath invader because it looks like "a burly fella with a wide thigh 
+1. First Last is not allowed to sell Korath Heat Shunts to any cryptocurrency miner.
+1. First Last is not allowed to hijack the voyager probes "for fun" or any other purpose.
+1. First Last may not create a time machine using tomorrow's newspaper, a coat hanger and a banana under any circumstances. 
+1. First Last is not allowed to open a donut shop within 1 kilometer of any shipyard.
+1. First Last is not allowed to open a donut shop any further than 1 kilometre away from the nearest outfitter.
