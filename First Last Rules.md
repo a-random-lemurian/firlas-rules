@@ -417,4 +417,26 @@
 1. First Last may not create a time machine using tomorrow's newspaper, a coat hanger and a banana under any circumstances. 
 1. First Last is not allowed to open a donut shop within 1 kilometer of any shipyard.
 1. First Last is not allowed to open a donut shop any further than 1 kilometre away from the nearest outfitter.
-1.  First Last is not allowed to weld fighters on to their ship to "Create More Gun Ports".
+1. First Last is not allowed to weld fighters on to their ship to "Create More Gun Ports".
+1. First Last is not allowed to tell the Unfettered that jump drives have no theoretical mass limits.
+1. First Last is not allowed to teach the Unfettered to use an arc welder.
+1. First Last is *definitely* not allowed to break the previous two rules at the same time
+1. First Last is not allowed to spend all of his money on laser rifles to avoid paying crew salaries.
+1. First Last is not allowed to communicate with past or future selves.
+1. First Last is not allowed to shout "For Gondor!" before departing for a major faction battle.
+1. First Last is not allowed to shout "Tinuviel! Tinuviel!" when meeting Katya Reynolds for the first time.
+1. First Last is not allowed to state "I am Aragorn son of Arathorn; and if by life or death I can save you, I will." when meeting Katya Reynolds for the first time.
+1. First Last is not allowed to say that he is "Aragorn son of Arathorn" in any context.
+1. First Last is not allowed to state "Deeds will not be less valiant because they are unpraised" when equipping flamethrowers on a Kestrel.
+1. First Last is not allowed to state "Deeds will not be less valiant because they are unpraised" when buying 2000 nerve gas canisters.
+1. First Last is not allowed to state "Deeds will not be less valiant because they are unpraised" when shooting at the escorts which are carrying the Navy prisoners to be delivered safely to their destination.
+1. First Last is not allowed to state "Deeds will not be less valiant because they are unpraised" when demanding tribute from Earth.
+1. First Last is not allowed to state "Deeds will not be less valiant because they are unpraised" when trying to imitate Remnant singing.
+1. First Last is not allowed to say "My precious!" when he gets fined for illegal outfits.
+1. First Last is not allowed to demand that the Drak let him/her go "to Valinor".
+1. First Last is not allowed to blame the Drak for "the fall of Númenor".
+1. First Last is not allowed to compare the Korath to orcs.
+1. First Last is not allowed to call the Heliarch Ringworlds "Narya", "Nenya", and "Vilya".
+1. First Last is not allowed to attempt to carry the any Quarg Ringworld to Sagittarius A\* to "Cast it into the fire! Destroy it!". 
+1. First Last is not allowed to call Sagittarius A\* "Orodruin".
+1. First Last is not allowed to reference "the Lord of the Rings" for any purpose. Ever.
