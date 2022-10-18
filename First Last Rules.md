@@ -440,3 +440,4 @@
 1. First Last is not allowed to attempt to carry the any Quarg Ringworld to Sagittarius A\* to "Cast it into the fire! Destroy it!". 
 1. First Last is not allowed to call Sagittarius A\* "Orodruin".
 1. First Last is not allowed to reference "the Lord of the Rings" for any purpose. Ever.
+1. First Last is not allowed to kidnap an Archon for their personal use.
