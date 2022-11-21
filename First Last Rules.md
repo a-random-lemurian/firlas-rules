@@ -150,11 +150,11 @@
 1. First Last is not allowed to run for Republic Parliament.
 1. First Last is not allowed to "assist" Katya Reynolds in "becoming the Empress of Humanity".
 1. First Last is not allowed to install an RBMK reactor on his flagship.
-1. First Last is not allowed to refer to any Southern ship designers as "Nitrogenpocket", "Carbondioxidepocket", "Carbonmonoxidepocket", or "Watervaporpocket".
+1. First Last is not allowed to refer to any Southern ship designers as "Nitrogenpocket," "Carbondioxidepocket," "Carbonmonoxidepocket," or "Watervaporpocket".
 1. First Last is not allowed to recreate the Chernobyl incident on his flagship.
 1. First Last is not allowed to hack into the Korath Automaton network and force them to play "BABY SHARK EARRAPE (10 HOUR PERFECT LOOP)".
 1. First Last is not allowed to hack into the Korath Automaton network.
-1. First Last is not allowed to form the "Paid Worlds", "Discount Worlds", "Expensive Worlds", or "Cheap Worlds".
+1. First Last is not allowed to form the "Paid Worlds," "Discount Worlds," "Expensive Worlds," or "Cheap Worlds".
 1. First Last is not allowed to refer to any Southern ship designers as "Methanepocket".
 1. First Last is not allowed to rename the Free Worlds government "the USSR".
 1. First Last is not allowed to argue over whether Katya Reynolds' first name is Katya or Katerina.
@@ -182,7 +182,7 @@
 1. First Last is not allowed to "reveal his final form".
 1. First Last is not allowed to "feel empathy".
 1. First Last is not allowed to sit in the corner and twiddle his thumbs.
-1. First Last is not allowed to name any admirals "Danfifth", "Dansixth", "Danseventh", "Daneighth", "Danninth", "Dantenth", or any other derivative.
+1. First Last is not allowed to name any admirals "Danfifth," "Dansixth," "Danseventh," "Daneighth," "Danninth," "Dantenth," or any other derivative.
 1. First Last is not allowed to carry paperclips.
 1. First Last is not allowed to "do science".
 1. First Last is not allowed to reveal the existence of the Korath to Lizard People conspiracy theorists.
@@ -436,7 +436,7 @@
 1. First Last is not allowed to demand that the Drak let him/her go "to Valinor".
 1. First Last is not allowed to blame the Drak for "the fall of Númenor".
 1. First Last is not allowed to compare the Korath to orcs.
-1. First Last is not allowed to call the Heliarch Ringworlds "Narya", "Nenya", and "Vilya".
+1. First Last is not allowed to call the Heliarch Ringworlds "Narya," "Nenya," and "Vilya".
 1. First Last is not allowed to attempt to carry the any Quarg Ringworld to Sagittarius A\* to "Cast it into the fire! Destroy it!". 
 1. First Last is not allowed to call Sagittarius A\* "Orodruin".
 1. First Last is not allowed to reference "the Lord of the Rings" for any purpose. Ever.
